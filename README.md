@@ -5,7 +5,7 @@ Welcome to the **[Surveys2Cash](https://offer.tcpfast.com/surveys2cash/)** repos
 
 ## 🔍 What is Surveys2Cash?
 
-Surveys2Cash is a platform that connects users with paid survey opportunities. By sharing your opinions on various topics, you can earn rewards in the form of cash, gift cards, or other incentives.
+**[Surveys2Cash](https://offer.tcpfast.com/surveys2cash/)** is a platform that connects users with paid survey opportunities. By sharing your opinions on various topics, you can earn rewards in the form of cash, gift cards, or other incentives.
 
 **[👉👉CLICK HERE👈👈](https://offer.tcpfast.com/surveys2cash/)**
 
